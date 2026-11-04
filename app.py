@@ -1,2 +1,0 @@
-# ERES UN PUTO XD 
-
